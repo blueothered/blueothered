@@ -1,6 +1,6 @@
 - 👋 hi, i’m @blueothered
 - 👀 well, drinking water is my entire personality
-- 🌱 i’m currently learning early infants' language acquisition in my master's degree reasearch.
+- 🌱 i’m currently learning early infants' language acquisition in my master's degree research at Universidade Federal do Oeste do Pará - UFOPA.
 - 📫 reach for me at loide.op@gmail.com
 
 <!---
